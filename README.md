@@ -20,7 +20,7 @@
 
 ## 🧱 About Us
 
-Marmilix is a trusted manufacturer and global exporter of premium granite, marble, quartz, and natural stone products from India.  
+Marmilix is a trusted supplier and global exporter of premium granite, marble, quartz, and natural stone products from India.  
 We supply stones for residential, commercial, and architectural projects across international markets.
 
 ---
