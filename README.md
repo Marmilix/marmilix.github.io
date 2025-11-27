@@ -7,7 +7,7 @@
 <p align="center">
   Premium Granite & Marble Export Company from India  
   <br/>
-  Trusted Manufacturer | Global Exporter | Wholesale & Project Supply
+  Trusted Supplier | Global Exporter | Wholesale & Project Supply
 </p>
 
 <p align="center">
