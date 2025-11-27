@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="./marmilixLogo2.png" alt="Marmilix Logo" width="300">
+  <img src="./minimize_logo.jpeg" alt="Marmilix Logo" width="300">
 </p>
 
 <h2 align="center">Marmilix — Beyond the Surface</h2>
